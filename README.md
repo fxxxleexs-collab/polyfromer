@@ -4,8 +4,7 @@
 
 📺 **Watch a Gigue-style Fugue's Audio & Score Demo Video Here**
 
-https://github.com/user-attachments/assets/f06bc401-0bbd-41f7-a548-7d12c1653ea7
-
+https://github.com/user-attachments/assets/bfdbd6da-c7f2-403f-8513-39d716798508
 
 ---
 
